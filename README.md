@@ -6,7 +6,7 @@ by RIZZO (SCHIZO LIZZO)
 
 🎵
 
-Why am I great only 'til I'm too great?
+Why's AI only great only 'til it's too great?
 
 Wooh
 
